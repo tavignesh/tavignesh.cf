@@ -1,1 +1,1 @@
-A small cute portfolio of myself for my school.
+A Personel Webpage for a lot of uses :)
